@@ -4,5 +4,5 @@ Happy Code 🔥
 
 ## Screenshots
 
-![Avesta](https://i.imgur.com/drYxI82.png)
+![Avesta](https://i.imgur.com/3eHxqvk.png)
 
